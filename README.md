@@ -1,7 +1,6 @@
 ## Hi Guys! I'm Mar :)
 
 - 🌱 Just a student
-- 🤍 Pronouns: she/her
 
 <div align="left">
   <a href="https://www.linkedin.com/in/marcella-g-a62269117/" target="_blank">
